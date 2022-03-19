@@ -1,4 +1,4 @@
-Hi!!! I'm Dawny (❁´◡`❁)
+Hi!!! I'm @Dawny04 (❁´◡`❁)
 
 I'm a student of biology and i'm interested in R to work in the science field, so i'm here just to learn.
 I'm curious about everything because i don't know really how to work with R by myself, so sorry in advance if i ask to many questions (っ °Д °;)っ
